@@ -1,4 +1,4 @@
-本人初三牲，就读于[山东省青岛市第五十三中学（SB学校一点也不好）](https://baike.baidu.com/item/%E5%B1%B1%E4%B8%9C%E7%9C%81%E9%9D%92%E5%B2%9B%E7%AC%AC%E4%BA%94%E5%8D%81%E4%B8%89%E4%B8%AD%E5%AD%A6/12665384?fr=ge_ala)
+本人高一牲，就读于青岛第十六中学
 
 我爱看[bilibili](https://www.bilibili.com/)和[抖音](https://www.douyin.com)
 
