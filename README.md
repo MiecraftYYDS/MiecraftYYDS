@@ -12,7 +12,7 @@
 
 听音乐用[QQ音乐](https://y.qq.com/n/ryqq/notfound)
 
-写作文时用[chatGPT](https://chatgpt.com/)（要翻墙）
+写作文时用[chatGPT](https://chatgpt.com/)
 
 >小游戏：[点我在线玩Bad Time Simulator](http://jcw87.github.io/c2-sans-fight/)
 
